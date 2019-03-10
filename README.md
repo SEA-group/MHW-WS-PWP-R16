@@ -1,4 +1,4 @@
-﻿# MHW Weapon skin mod: PWP-R16 Sagitanius type R
+﻿# MHW Weapon skin mod: PWP-R16 Sagittanius type R
 
 ======================Presented by SEA group & 狩技======================
 
